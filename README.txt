@@ -7,4 +7,3 @@ I will keep an always active promotion that is the following let's say a kind of
 for a person you bring you will receive a percentage of the purchase.
 if you bring 2 people will receive a free tool of your choice between those 3 present.
 
-Translated with www.DeepL.com/Translator (free version)
